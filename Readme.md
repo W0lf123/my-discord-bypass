@@ -6,7 +6,7 @@ The solution? Make something that can bypass it.
 
 So I did.
 
-### [Click Here to Access DISCORD](https://discordapp.com/channels/@me "Surviv.io Unblocked!")
+### [Click Here to Access DISCORD](https://discordapp.com/channels/@me "DISCORD")
 ### [Click Here to Access COOLMATHGAMES](https://m.coolmathgames.com "Shell Shockers Unblocked!")
 ### [Click Here to Access Bonk.io](https://randomblock1.github.io/unblock-survivio/bonk.html "Bonk.io Unblocked!")
 Share this link to help others have fun! [bit.ly/surviv-io](http://bit.ly/surviv-io)
